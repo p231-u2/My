@@ -1,3 +1,3 @@
-# 14feb-by-untoldcoding
+# 14feb
 
-Video : [instagram/untoldcoding](https://www.instagram.com/untoldcoding/?hl=en)
+Video:(https://www.instagram.com/untoldcoding/?hl=en)
